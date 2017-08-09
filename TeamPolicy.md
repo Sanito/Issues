@@ -1,4 +1,4 @@
-# Team Policy
+# Team Policy
 
 Description
 
